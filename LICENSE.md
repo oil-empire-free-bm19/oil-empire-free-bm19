@@ -1,4 +1,4 @@
-
+Free sec fling things and people Scripts | auto-fling + inf-power brings you the best free scripts for fling things and people, featuring auto-fling and inf-power. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
